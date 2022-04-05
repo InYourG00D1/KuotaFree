@@ -1,5 +1,4 @@
-# KuotaFree
-MaafKan Kegabuttan Ku Ster
-Gk Punya Ide Lagi buat Bikin Tools
-Otak lagi susah Berkarya 
-tq udh dengerin Curhatta gw
+# ALERT!!
+support me by following and stars github.
+<p>Instagram : <td><a target="_blank" href="https://www.instagram.com/ragil_iygd77">Click Me</a></td></p>
+
